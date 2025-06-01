@@ -1,4 +1,4 @@
-## Kartra Discount Code May 2025: 57% OFF Special Coupon
+## Kartra Discount Code June 2025: 57% OFF Special Coupon
 
 Are you looking for a legit Kartra discount code?
 
@@ -10,7 +10,7 @@ Kartra is your all-in-one marketing tool—everything you need to optimize your 
 
 ---
 
-## Latest Kartra Discount Code & Coupon Deals (May 2025)  
+## Latest Kartra Discount Code & Coupon Deals (June 2025)  
 
 ### Get 3 Months of Starter for $99
 
@@ -20,12 +20,12 @@ All of Kartra’s plans are currently on sale. And now, you can grab the Starter
 
 ---
 
-### Kartra May Deals (Live)
+### Kartra June Deals (Live)
 
 **Get 3 months of Starter for $99: [Claim Now](https://try.kartra.com/xq5u4lh0iu83-b03rk)**  
 **Try Kartra for 30 days for just $1: [Claim Now](https://try.kartra.com/xq5u4lh0iu83-b03rk)**
 
-Besides the amazing 57% discount, Kartra’s got another deal running this May: the Starter Plan is now just **$79/month** for 6 months! If you’re looking to take your business to the next level, **Kartra’s Growth Plan** is a steal at **$99/month** for 6 months—offering a massive 57% off!
+Besides the amazing 57% discount, Kartra’s got another deal running this June: the Starter Plan is now just **$79/month** for 6 months! If you’re looking to take your business to the next level, **Kartra’s Growth Plan** is a steal at **$99/month** for 6 months—offering a massive 57% off!
 
 And hey, don’t forget: **Use coupon code KARTRA30** at checkout for an additional **30% off** your order. This deal is too good to miss, especially with Kartra’s powerful features at such an affordable price. 
 
